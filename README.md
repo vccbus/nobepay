@@ -31,7 +31,7 @@ NobePay的成功也使得虚拟卡行业如雨后春笋般蓬勃发展，市面�
 
 平台支持即时退款，如果您觉得平台不好用，可随时联系客服申请退款，退款秒到账！大家都是做生意的，可不敢耽搁老板们的资金周转。
 
-[立即注册福田虚拟卡平台](https://dashboard.fotoncard.com/#/pages/register?agent=388832)
+**[立即注册福田虚拟卡平台](https://dashboard.fotoncard.com/#/pages/register?agent=388832)**
 
 ![福田虚拟信用卡平台界面展示](futongcard.jpg)
 
